@@ -1,5 +1,5 @@
 - 👋 Oi, me chamo Marcelo Souza 
-- 👀 Aqui neste GitHub teem alguns dos meus projetos, dá uma olhada nos repositó quando quiser hehe
+- 👀 Aqui neste GitHub tem alguns dos meus projetos, dá uma olhada nos repositório quando quiser hehe
 - 🌱 Estou me formando pela Generation Brasil 
 - 💞️ Sonhar, batalhar e conquistar talvez seja minhas três palavras favoritas.
 - 📫 Você pode me encontrar no LinkedIn por este link: https://www.linkedin.com/in/marcelo-souza-2a8189207/
